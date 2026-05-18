@@ -20,10 +20,6 @@
 
 Je recherche une alternance de **24 mois à partir de septembre 2026** pour intégrer le Master SIAD.
 
-Je m’intéresse particulièrement à :
-- l’analyse de données  
-- les systèmes d’information  
-- l’aide à la décision  
 
 ---
 
