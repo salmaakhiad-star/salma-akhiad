@@ -16,9 +16,9 @@
 
 ## 🎯 À propos
 
-Étudiante en **Licence 3 Économie-Gestion – parcours Systèmes d’Information et Aide à la Décision** à l’Université de Lille.
+Étudiante en M1 Systèmes d’Information et Aide à la Décision** à l’Université de Lille.
 
-Je recherche une alternance de **24 mois à partir de septembre 2026** pour intégrer le Master SIAD.
+Je recherche une alternance de **24 mois à partir de septembre 2026** .
 
 
 ---
